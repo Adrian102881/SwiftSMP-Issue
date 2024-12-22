@@ -32,10 +32,10 @@ This Section we will be talking about Tom and Kat's issue, Kat seems to hate Tom
 ![image alt](https://github.com/Adrian102881/SwiftSMP-Issue/blob/bdba597ac9887673bab45641e39c663d773cf42f/kat_hating_tom.PNG)
 
 The same reason still applies why they hate their demoted/ex staffs for WHATEVER reasons and they start to attack them saying its a
-copycat server. REMEMBER THE SWIFTSMP alone is NOT even an Original. they copy ideas from other servers and call themselves the BEST SMP
+copycat server. REMEMBER THE SWIFTSMP alone is NOT even Original. they copy ideas from other servers and call themselves the BEST SMP
 for foolish sake.
 
-What makes this "Tom - Kat Issue" is that since kat hates tom so much the swifters/one of swifters ATTACKED Tom's MINECRAFT SERVER
+What makes this "Tom - Kat Issue" worse is that since kat hates tom so much the swifters/one of swifters ATTACKED Tom's MINECRAFT SERVER
 Botting it with accounts named "SwiftSMP" that was known by live streamers on TikTok "SwiftBots" Becareful, they attack randomly.
 
 What's even more worse is Swifter's staff who doesnt know anything POSTED the ISSUE on swift's #shame CHANNEL.
@@ -44,6 +44,13 @@ Picture Logs of Tom's Server(Halcyon SMP):
 
 
 ![image alt](https://github.com/Adrian102881/SwiftSMP-Issue/blob/a7639c2569507b55084a762db7850350d413a97b/swift_posted_bot_attcks.PNG)
+
+AND of course *AS USUAL* kat, swifters Lied about this ddos/bot attack attempt and DENIED this.
+Yes it sounds crazy that they are trying to BLAME Tom for DDOSING/BOTTING his OWN Server
+just to make the swiftsmp "reputation look bad"? Whatever REASONS SwiftSMPs trying to do is
+funny AF.
+
+
 
 
 
