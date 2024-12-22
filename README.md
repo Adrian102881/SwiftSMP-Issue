@@ -93,6 +93,8 @@ Server that was attacked here(they tried to report this issue but *AS USUAL* the
 ***Stay Safe and be aware of SwiftSMP, its up to you if you trust them ;)***
 ***I will update here soon, byebye.***
 
+***PLEASE SPREAD THIS REPO TO FELLOW  SERVER OWNERS/PLAYERS***
+
 
 
 
