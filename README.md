@@ -5,6 +5,12 @@ exposed.
 
 ***This also shows that this so called "Swifters" if they get into a SMALL argument they lose their balls and go around dox/ddos people/people's servers***
 
+***BE AWARE OF SWIFTSMP IS USED AS; logs ip which they track and do something bad about it which what mostly happens to swift players that gets cyber threats/attack***
+
+***Server itself is also HATED by many Server Owners like: CottonSmp, HalcyonSMP, WorstGenSMP, Inferno, etc... Due to Cyber Attacks***
+
+the only reason why im doing this is to tell people who has no idea what's happening behind that front clean looking staffs from SwiftSMP.
+
 
 #1
 
@@ -54,6 +60,50 @@ funny AF.
 
 This Section we will be talking about the impact of the previous issue, Tom attempted to doxxed kat but we do not know for sure if its actually kat
 the reason why i can say "i dont know" because the swifters ban users who asks about the guy in the picture if its kat.
+
+![image alt](https://github.com/Adrian102881/SwiftSMP-Issue/blob/a9bc69378844fe26214b1076f0cc104d15906976/realorfake_ddx.PNG)
+
+The issue becomes more big because of Tom's members/server and Swifters fight each other. which of course leads to 
+daily bot attacks on Tom's Server.
+
+#4
+
+This section will just show why the so called "SwiftBots" are low-medium known by TikTok Streamers/Server Owners.
+
+Server that was attacked here(they tried to report this issue but *AS USUAL* the swifters will lie about i);
+
+* WorstGen SMP - https://discord.gg/sA6zkRBxtv
+
+![image alt](https://github.com/Adrian102881/SwiftSMP-Issue/blob/a9bc69378844fe26214b1076f0cc104d15906976/worstgen.PNG)
+
+
+* Halcyon SMP - https://discord.gg/WbyqR4utqF
+
+![image alt](https://github.com/Adrian102881/SwiftSMP-Issue/blob/a9bc69378844fe26214b1076f0cc104d15906976/swift_posted_bot_attcks.PNG)
+
+* PandaMC PH - https://discord.gg/NCVum5W4gr
+
+![image alt](https://github.com/Adrian102881/SwiftSMP-Issue/blob/a9bc69378844fe26214b1076f0cc104d15906976/other_server_botted.png)
+
+* PhilCraft SMP - https://discord.gg/d5NVEHrYHu
+
+![image alt](https://github.com/Adrian102881/SwiftSMP-Issue/blob/a9bc69378844fe26214b1076f0cc104d15906976/botted_by_swift_rly.png)
+
+
+***Stay Safe and be aware of SwiftSMP, its up to you if you trust them ;)***
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
