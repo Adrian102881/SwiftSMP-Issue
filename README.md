@@ -50,6 +50,11 @@ Yes it sounds crazy that they are trying to BLAME Tom for DDOSING/BOTTING his OW
 just to make the swiftsmp "reputation look bad"? Whatever REASONS SwiftSMPs trying to do is
 funny AF.
 
+#3
+
+This Section we will be talking about the impact of the previous issue, Tom attempted to doxxed kat but we do not know for sure if its actually kat
+the reason why i can say "i dont know" because the swifters ban users who asks about the guy in the picture if its kat.
+
 
 
 
